@@ -28,6 +28,15 @@ Reconheço a importância do que estou aprendendo e como isso pode me diferencia
 
 🌐 Contato e redes
 
-💼 LinkdIn:https://www.linkedin.com/in/laura-nassira-a906b8311/?trk=public-profile-join-page
-📧 Email: lauranassiras@gmial.com
+💼 LinkdIn:in/laura-nassira
+
+
+
+📧 Email: lauranassiras@gmial.com 
+
+✍️ Frase que me inspira 
+
+"Acredite no poder dos seus sonhos e siga em frente."
+
+
 
