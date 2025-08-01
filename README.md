@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-<img src="https://github.com/LauraNassira/LauraNassira/blob/main/assets/eu.JPEG" witdh="50" height="50"/>
+<img src="https://github.com/LauraNassira/LauraNassira/blob/main/assets/eu.JPEG"  height="100"/>
